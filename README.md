@@ -1,4 +1,5 @@
 # The_Sparks_Foundation_Task_3
+![Screenshot 2024-08-16 044233](https://github.com/user-attachments/assets/0049c4ff-631c-4212-ac6b-4470d19bbee2)
 
 # The Sparks Foundation
 
